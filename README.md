@@ -1,4 +1,4 @@
-### Hi there 👋 :fu:
+### Hi there 👋 
 
 
 <!--
